@@ -11,7 +11,7 @@ Welcome to my profile! I’m thrilled to share a bit about myself with you.
 
 ## 💡 What I’m Focused On
 
-- 🚀 **Personal Growth**: Improving my communication skills and expanding my vocabulary.
+- 🚀 **Personal Growth**: Improving my communication skills and expanding my vocabulary
 - 🧠 **Skill Building**: Learning about aerodynamics, flight systems, and aviation safety.
 - 💪 **Health & Fitness**: Working on my physique for modeling and embracing a disciplined lifestyle.
 
